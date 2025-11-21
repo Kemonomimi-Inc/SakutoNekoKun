@@ -69,6 +69,8 @@
 ---
 
 ## Socials
+- @TsukiumiNeko  
+- @TsukiumiNekoUwU  
 - @NekoTsukiumi  
 - @NekoTsukiumiUwU  
 
