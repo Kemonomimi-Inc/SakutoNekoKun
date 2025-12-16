@@ -1,7 +1,7 @@
 
 # 朔斗猫少年くん Sakuto Neko-kun 🪻🐱 さくとねこくん
 
-![](AiImages/ChatGPT%20Image%20Nov%2021%2C%202025%2C%2006_01_29%20PM.png?raw=true)
+![](AiImages/ChatGPT%20Image%20Dec%2015%2C%202025%2C%2007_07_10%20PM.png?raw=true)
 
 ---
 
